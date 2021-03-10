@@ -11,12 +11,12 @@ Ticalah, greg, Caligula, body of the beast
 
 Shogun,
 
-Nah, I shot you, I killed you, nigga
-You don't know me, I'm the one that shot you, nigga
+Nah, I shot you, I killed you, ni**a
+You don't know me, I'm the one that shot you, ni**a
 You know what I mean?
 Yeah, I know, I like the way you dress
 Yeah, I like the way you look
-Yeah, I'm the one that shot you, nigga
+Yeah, I'm the one that shot you, ni**a
 You know what I mean?
 Yeah, I know, I like the way ...
 ```
